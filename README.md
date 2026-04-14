@@ -138,8 +138,8 @@ menginterpretasikan data:
 
 **Bayu Fajar Pradana**
 Career Switcher | Ex-Sales Distributor → Data Analyst
-📧 [bayufp1717@gmail.com]
-💼 [www.linkedin.com/in/bayu-f-pradana]
+- [bayufp1717@gmail.com]
+- [www.linkedin.com/in/bayu-f-pradana]
 
 ---
 
